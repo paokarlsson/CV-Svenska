@@ -35,7 +35,7 @@ Hösten 2006 – hösten 2007
 
 ## Arbeten
 
-Chaufför, Kyl och frysexpressen Nord, Östersund Lugnvik  
+Chaufför, Kyl och frysexpressen Nord, Östersund    
 Augusti 2018 - augusti 2019
 
 Bolånerådgivare mm, Swedbanks telefonbank, Östersund tidigare Stockholm  
