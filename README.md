@@ -1,8 +1,8 @@
-# CV Ola Karlsson
+# CV
 
 ---
 
-Ola Karlsson, 19840821-8256  
+Ola Karlsson
 Telefon: 0706 – 942852  
 E-post: pao.karlsson@gmail.com  
 Adress: Jägarstigen 8, 832 47 Frösön  
