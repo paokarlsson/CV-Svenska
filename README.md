@@ -1,6 +1,7 @@
 # CV
 
 Ola Karlsson  
+Födelsedatum: 1984-08-21
 Telefon: 0706 – 942852  
 E-post: pao.karlsson@gmail.com  
 Adress: Jägarstigen 8, 832 47 Frösön  
