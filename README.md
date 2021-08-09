@@ -21,6 +21,7 @@ Web Programming with HTML5, CSS3 and JavaScript
 Discrete Mathematics for Programmers  
 Object Oriented Programming in C++  
 Java for C++ Programmers  
+Application Development for the Android Platform
 
 ### Ekonomi, Mittuniversitetet 
 
